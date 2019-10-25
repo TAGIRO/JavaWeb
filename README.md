@@ -1,4 +1,3 @@
 Hope you are doing well guys:
-1#The first project presentation, I shift it to the second week after the national day holiday, that means to October 18, 2019
-2#Assignments 1 and 2 are due to the next Friday, September 27.
-3#Please find the attached activities one and two 
+We have already spent almost two month on this course. so my updates are as follow:
+#1.The students who will not submit their assignments before Tuesday 29, otherwise you are going to take a test on next friday. #2. next friday, you are going to present to me what are going to do as a final project, otherwise, I will suggest a project for you, based on the the presentation you have already made.
